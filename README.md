@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sujal1s
 - 👀 I’m interested in ...Gaming
-- 🌱 I’m currently learning ...Python 
+- 🌱 I’m currently learning ... nothing 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... pachpandesujal555@Gmail.com
 
